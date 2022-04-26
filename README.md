@@ -1,1 +1,1 @@
-https://github.com/Prachi12527/blog_fashiontrends.github.io.git Tap here to open.
+https://prachijtech.blogspot.com/2020/11/fashion-trends-2020.html Tap here to open.
